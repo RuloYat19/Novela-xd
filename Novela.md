@@ -90,10 +90,7 @@ Luego cuando regresamos pasó lo de esta historia pero en otro momento si quiere
 ## ??/??/2025 - Cultos de ayuno
 (Proximamente)
 
-## 16/01/2026 - Día que estuve en la puerta
-(Proximamente)
-
-## 14/02/2026 - Día que Janna estuvo en la puerta
+## 16/01/2026 - Día que estuve en la puerta de la iglesia
 (Proximamente)
 
 # Detalles finales
